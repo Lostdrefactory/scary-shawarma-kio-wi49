@@ -1,4 +1,4 @@
-#  
+#  no-ban scary shawarma kiosk Scripts is the best scary shawarma kiosk Script, featuring auto-farm and no cooldown. Safe and powerful for all your
 
 
 
